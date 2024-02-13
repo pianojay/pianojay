@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @pianojay
-- 👀 I’m interested in ... Mechanical Engineering and Since of Computing
+- 👀 I’m interested in ... Machiavelic Engineering and Sins of Computing
 - 🌱 I’m currently learning ... How to get out of vim (as for its addictiveness)
-- 💞️ I’m looking to collaborate on ... Stock Market
+- 💞️ I’m looking to collaborate on ... Stock Market (yay)
 - 📫 How to reach me ... With your arm?
 - 😄 Pronouns: ... are nouns but cooler (I think pianojay should be a noun, like "a few of pianojay")
 - ⚡ Fun fact: ... Ellipsis
